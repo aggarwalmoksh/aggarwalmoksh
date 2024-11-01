@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aggarwalmoksh
+- 👀 I’m interested in ... New creative projects
+- 🌱 I’m currently learning ... Computer Science Engineering with specialization in Artificial Intelligence
+- 📫 How to reach me ... instagram-@mokshaggarwal_
+- 😄 Pronouns: ... He/him/his
